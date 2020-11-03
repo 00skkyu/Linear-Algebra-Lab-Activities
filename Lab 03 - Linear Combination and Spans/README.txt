@@ -1,0 +1,1 @@
+Hello, there are two general linear equation form on each of the three examples in Task 2 in case it's not appearing on the preview section here on GitHub. Thank you :D
